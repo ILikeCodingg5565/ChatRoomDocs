@@ -1,1 +1,1 @@
-# ChatRoomDocs
+# ChatRoom T&C + Privacy Policy
